@@ -1,0 +1,1 @@
+I use to be a network administrator but wanted more creative freedom as well as the ability to work remotely. I started coding around a year ago but couldn't find enough time between working part-time and going to school full time to go really in depth. I'm hoping during these 9 weeks to finally have the time to develop coding skills with a like-minded group of individuals!
